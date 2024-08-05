@@ -7,3 +7,4 @@ Algumas informações sobre mim:
 - 📖Atualmente sou estudante do SESI e SENAI
 - 👩🏻‍💻Curso Desenvolvimento de Sistemas 
 - 🌱Sou apaixonada pela área de Biologia!
+- 🙏🏻Católica Apóstolica Romana 
