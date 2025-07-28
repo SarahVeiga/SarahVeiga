@@ -24,12 +24,13 @@
 
    <br>
 
-  <img width="1024" height="538" alt="image" src="https://github.com/user-attachments/assets/4d008005-ad1f-4bff-a181-06533cff38af" />
+  <img width="1584" height="396" alt="Link Link (1)" src="https://github.com/user-attachments/assets/59158330-98eb-484e-968b-e0c551089602" />
+
 
 <br>
 <br>
    
- Além da área de tecnologia, tenho um grande interesse pelo universo de Estética e Bem-Estar, com foco especial em Biomedicina Estética. Sou apaixonada por me cuidar e adoro ajudar as pessoas a aumentarem sua autoestima com tratamentos como limpeza de pele, skincare e cuidados faciais e corporais.
+ Além da área de tecnologia, tenho um grande interesse pelo universo de Estética e Bem-Estar, com foco especial em Biomedicina Estética. Sou apaixonada por me cuidar e tenho um prazer enorme em ajudar as pessoas a aumentarem sua autoestima por meio de tratamentos como limpeza de pele, skincare e cuidados faciais e corporais. Quero levar essa paixão adiante e atuar nesse segmento, sempre promovendo bem-estar e autoconfiança!
 
  Para entrar em contato:
  
