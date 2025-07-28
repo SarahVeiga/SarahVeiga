@@ -22,7 +22,6 @@
  - Desenvolvimento de Sistemas,
  - Design front-end.
 
-   <br>
 
   <img width="1584" height="396" alt="Link Link (1)" src="https://github.com/user-attachments/assets/59158330-98eb-484e-968b-e0c551089602" />
 
