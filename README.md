@@ -8,8 +8,8 @@
 🎓 **Estudante do SESI e SENAI**  
 📚 **Curso**: Desenvolvimento de Sistemas - Jacob Lafer
 
-Além de tecnologia, sou apaixonada pelo universo de **Estética e Bem-Estar**. Acredito que cuidar da autoestima das pessoas é uma forma incrível de ajudá-las a se sentirem mais confiantes e felizes!
-Tenho grande interesse pela área da Beleza, com foco especial em Biomedicina Estética. Amo me cuidar e tenho um prazer enorme em ajudar as pessoas a aumentar seu amor-próprio por meio de cuidados como limpeza de pele, skincare, tratamentos faciais e corporais. Estou sempre buscando aprender mais sobre esse universo, com o objetivo de atuar profissionalmente nesse segmento.
+Além de tecnologia, sou apaixonada pelo universo de **Estética e Bem-Estar.** Acredito que cuidar da autoestima das pessoas é uma forma incrível de ajudá-las a se sentirem mais confiantes e felizes!
+Tenho grande interesse pela área da Beleza, com foco especial em Biomedicina Estética. Amo me cuidar e tenho um prazer enorme em ajudar as pessoas a aumentar seu amor-próprio por meio de cuidados como limpeza de pele, skincare, tratamentos faciais e corporais. Estou sempre buscando aprender mais sobre esse universo, com o objetivo de atuar profissionalmente nessa área.
 
 💆🏻‍♀️ **Cuidados com a pele**  
 🧴 **Skincare**  
