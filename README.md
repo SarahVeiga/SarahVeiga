@@ -43,12 +43,6 @@ Quero levar essa paixão adiante e atuar nesse segmento com muito amor e dedica�
 
 <img width="1584" height="396" alt="Link Link (1)" src="https://github.com/user-attachments/assets/59158330-98eb-484e-968b-e0c551089602" /> 
 
----
-
-### Vamos conversar? 💬
-
-Entre em contato comigo:  
-🔗 **[LinkedIn](linkedin.com/in/sarah-veiga-4b6582377)**
 
 ---
 
