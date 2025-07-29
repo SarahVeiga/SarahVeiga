@@ -35,9 +35,11 @@ Tenho experiência nas seguintes áreas:
 
 ---
 
- 
 
 Quero levar essa paixão adiante e atuar nesse segmento com muito amor e dedicação!
+
+Link do meu Currículo:
+[Currículo.pdf](https://github.com/user-attachments/files/21494483/Curriculo.pdf)
 
 <br>
 
@@ -45,6 +47,7 @@ Quero levar essa paixão adiante e atuar nesse segmento com muito amor e dedica�
 
 
 ---
+
 
 ### Stats do GitHub 📊
 
