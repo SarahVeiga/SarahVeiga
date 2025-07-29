@@ -54,6 +54,6 @@ Link do meu Currículo:
 ![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=SarahVeiga&show_icons=true&theme=radical)
 
 
-
+<img src="https://capsule-render.vercel.app/api?type=waving&color=F2D4C2&height=125&section=footer&text=Obrigada+pela+visita!✨&fontColor=8C533E&fontSize=20"/>
 
 
