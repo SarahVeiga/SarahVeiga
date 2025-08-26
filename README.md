@@ -32,6 +32,7 @@ Tenho experiência nas seguintes áreas:
 - 🎨 **Design front-end**
 - 📊 **EXEL**
 - 🌐 **Inteligência Artificial**
+- 👩🏻‍💻 **LARAVEL**
 
 ---
 
