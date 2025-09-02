@@ -33,6 +33,7 @@ Tenho experiência nas seguintes áreas:
 - 📊 **EXEL**
 - 🌐 **Inteligência Artificial**
 - 👩🏻‍💻 **LARAVEL**
+- 🧮 **FLET**
 
 ---
 
